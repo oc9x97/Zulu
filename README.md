@@ -1,2 +1,2 @@
-# Zulu
-Just a bunch of cheats for many different games.
+# Zulu Cheats
+Just a bunch of cheats for many different things.
